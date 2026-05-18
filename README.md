@@ -1,0 +1,1 @@
+# Calculadora-de-pot-ncia-e-consumo
